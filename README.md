@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jonyando, Recent graduate of Data Science looking for an opportunity to connect 
+- 👋 Hi, I’m @Jonyando,  a graduate of Data Science looking for an opportunity to connect 
   
 
 
